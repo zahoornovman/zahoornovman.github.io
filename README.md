@@ -1,2 +1,2 @@
 # zahoornovman.github.io
-Zahoor Novman's Home Page Hello Sadique
+Zahoor Novman's Home Page
